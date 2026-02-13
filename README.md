@@ -1,0 +1,1 @@
+https://sus-arch.github.io/zakrivayuschiy-teg-ad/
